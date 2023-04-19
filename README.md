@@ -54,4 +54,4 @@
 
 все конец
 ![image](https://user-images.githubusercontent.com/128893943/233150822-fb27f8d1-deee-41c2-bb94-14f12bd6c190.png)
-![image](https://user-images.githubusercontent.com/128893943/233150904-b22a7ab7-1af9-4a18-8bc7-146076083148.png
+![image](https://user-images.githubusercontent.com/128893943/233150904-b22a7ab7-1af9-4a18-8bc7-146076083148.png)
